@@ -1,0 +1,22 @@
+19-20 January - Blueberry Ricotta Squares
+
+Dough
+<pre>- 1     cup flour
+- 3/4   cup sugar 
+- 1 1/4 teaspoon baking powder
+- 1/4   teaspoon salt
+- 1/3   cup milk
+- 1/4   cup shortening 
+- 1     egg
+- 1/2   teaspoon vanilla
+- 1 1/2 cup fresh or partially thawed frozen blueberries</pre>
+
+Filling 
+<pre>- 2     eggs
+- 1 1/4 cup ricotta cheese
+- 1/3   cup sugar
+- 1/4   teaspoon vanilla</pre>
+
+In a small mixer bowl combine flour, sugar, baking powder and salt. Add the milk, shortening, 1 egg and the 1/2 teaspoon of vanilla. Beat on low until combined. Beat 1 minute on medium speed. Pour batter into 9x9x2" pan and spread it evenly. Sprinkle blueberries over batter. 
+
+In a medium bowl lightly beat 2 eggs with a fork, Add ricotta, 1/2 c sugar, and 1/4 teaspoon vanilla. Beat until well mixed and spoon over batter. Bake at 350F for 55-60 minutes or until inserted knife comes out clean. Cool and cut into squares. 

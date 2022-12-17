@@ -1,0 +1,9 @@
+23-24 January - Cranberry-Apple Sweet Potatoes (Gussie Alper)
+<pre>
+- 5-6 medium sweet potatoes or 2 18 oz cans of sweet potato, cut into pieces
+- 21  oz can of apple pie filling
+- 8   oz can of cranberry sauce
+- 2   tablespoon apricot preserves
+- 2   tablespoon orange marmalade
+</pre>
+In a large saucepan cook bite sized potatoes in enough boiling salted water to cover, about 15 minute or until tender. Drain and set aside. Spread pie filling an 8x8x2" baking dish; arrange cooked potatoes on top. In a small mixing bowl, stir together cranberry sauce, apricot preserves and marmalade; spoon over sweet potatoes. Bake uncovered in a 350F oven for 20-25 minutes or until heated through. Makes 6-8 servings.

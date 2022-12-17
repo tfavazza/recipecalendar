@@ -1,0 +1,10 @@
+10-11 February - Vodka sauce
+<pre>
+- 1/4 lb butter or margarine, melted
+- 1/4 lb sliced pancetta (about 4 slices)
+- 1/3 cup vodka
+- 1/2 cup heavy cream
+</pre>
+
+Cook pancetta and butter with vodka until vodka evaporates. Make a basic sauce (tomato sauce).  Put 1 1/2 cup of sauce in pan with pancetta and add 1/2 cup of heavy cream. Simmer uncovered 8-10 minutes on low flame. Cook 1 lb rigatoni - add sauce and grated cheese. 
+Enjoy!
