@@ -15,3 +15,5 @@ In a large mixer bowl, combine 1 1/2 cups of flour, yeast, sugar, and salt; mix 
 While dough is chilling punch down several times. 
 Allow dough to come to room temperature. Divide dough into 2 parts. Roll each part into a 10 5x14" rectangle. Cut into 3.5" squares. Place on greased baking sheets. Cut each square diagonally from each corner to about 1/2" of center. Place rounded spoon of preserves in center. There are now two points to each corner. Lightly brush every other point with egg wash (1 egg and 1 tablespoon water slightly beaten). Bring moistened points toward center, gently twist and pinch to fasten together. Top each center with a small piece of dough, about 1/2" in diameter or use a candied cherry for extra decoration. 
 Lightly cover; let rise at room temperature until almost doubled, 10-15 minutes (15-20 for active dry yeast). Bake 15 minutes at 350F or until golden brown. Remove to wire rack, let cool slightly. Sprinkle with confectioner's sugar. 
+
+![image](https://user-images.githubusercontent.com/16396850/210156901-711f1b52-2db8-42e0-a63f-6f80e2b846a1.png)
