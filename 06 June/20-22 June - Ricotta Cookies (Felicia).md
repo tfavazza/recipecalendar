@@ -22,3 +22,7 @@ Preheat oven to 350F. Cream butter and sugar, add eggs and vanilla and continue 
 
 Icing
 Warm milk and add butter and crisco until melted. Whisk 10X sugar and lemon juice until smooth. 
+
+Cookies without frosting: 
+![image](https://user-images.githubusercontent.com/16396850/210156872-ba3ab489-2932-4216-afb6-1e57c935c89e.png)
+![image](https://user-images.githubusercontent.com/16396850/210156876-0af84f16-9c38-4755-93b1-59a3d70b0117.png)
