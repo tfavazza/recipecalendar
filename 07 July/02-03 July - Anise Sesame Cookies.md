@@ -14,3 +14,4 @@ Mix together flour, sugar, baking powder, and crisco by hand until coarse meal. 
 
 Note:
 To this recipe add cherries, nuts, and chocolate chips - 1 cup each. Do not add anise, just vanilla, spoon onto cookie sheet.
+
