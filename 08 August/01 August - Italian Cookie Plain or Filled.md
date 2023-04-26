@@ -1,7 +1,7 @@
 01 August - Italian Cookie Plain or Filled
 
 - 4 cup flour
-- 4 teastpoon vanilla
+- 4 teaspoon vanilla
 - 1 cup crisco
 - 4 eggs beaten with a little milk
 - 1 cup sugar
