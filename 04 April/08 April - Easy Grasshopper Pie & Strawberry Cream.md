@@ -13,11 +13,12 @@ Mix crumbs and butter. Press mixture onto bottom and sides of 9" pie plate. Refr
 
 Strawberry Cream Cheese Pie 
 
-10 oz frozen halved strawberries in syrup, thawed
-16 oz cream cheese
-1/4   cup sugar
-1     teaspoon vanilla
-2     cup Cool Whip
-1     prepared chocolate flavor crumb crust 
+- 10 oz frozen halved strawberries in syrup, thawed
+- 16 oz cream cheese
+- 1/4   cup sugar
+- 1     teaspoon vanilla
+- 2     cup Cool Whip
+- 1     prepared chocolate flavor crumb crust
+- fresh strawberries and kiwi (garnish)
 
 Drain strawberries, reserving 1/4 cup liquid. Beat cream cheese, reserved liquid, thawed strawberries, sugar and vanilla until smooth. Fold in whipped topping. Spoon into crust. Refrigerate several hours or overnight. Garnish with sstrawberry halves and kiwi slices. Makes 6-8 servings. 
