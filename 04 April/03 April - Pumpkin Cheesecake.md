@@ -27,3 +27,6 @@ Cream together brown sugar and butter. Add flour and egg and mix well. Add walnu
 Filling
 
 Cream ricotta and cream cheese together. Add sugar and beat well. Blend in cornstarch. Mix in pumpkin and spices. Add eggs and mix well. Pour into cooked crust and bake at 325F for about 1 hour or until knife comes out clean. Turn off oven and leave there for about a half hour to cool. 
+
+Editors note: this took closer to 2 hours to bake in the oven (with an extra hour to cool). I didn't strain the ricotta, that may be a step to do. This cheesecake is HUGE, easily serves 12 people with leftovers z ![IMG_5678](https://github.com/tfavazza/recipecalendar/assets/16396850/e74cda16-d350-46da-a600-a3eb3a8c666e)
+![IMG_5677](https://github.com/tfavazza/recipecalendar/assets/16396850/5186231e-e53b-4aef-a120-9a6c0f92020f)
